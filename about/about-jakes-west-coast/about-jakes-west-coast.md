@@ -4,6 +4,8 @@ date: 1970-01-01
 author: Jake Runyan
 ---
 
+Learn more about Jake's West Coast at the official [website](https://jakeswestcoast.com).
+
 [Jake's West Coast](https://www.youtube.com/@jakeswestcoast) is my cycling brand and YouTube channel. I've been cycling in some capacity since I was a child, but since going to college I've realized it's a hobby I'll keep with me for life.
 
 During and after college, I got my start riding UC Santa Cruc's Upper Campus, where I often rode singletrack before classes. I rode a retrofitted [Specialized Hardrock](https://www.bicyclebluebook.com/value-guide/1998%20Specialized%20Hardrock%20Classic) while getting my start. After graduation, we continued to ride in Santa Cruz, riding Upper Campus's many "9 Drops", but also exploring other riding areas like Soquel Demonstration State Forest, and Skeggs and Pacifica to the north. While we were doing this post-college riding, I gradudated to my first full-sus bike, a [Santa Cruz Tallboy 2019](https://www.vitalmtb.com/product/guide/Bikes,3/Santa-Cruz/Tallboy-Carbon-C-S,23477).
